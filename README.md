@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Za204
 - 👀 I’m interested in Sonic and Mario stuff etc.
 - 🌵 I'm learn how to code on Scratch
-- 💞️ Look for Zacobo1945 to collaborate with me on Scratch! 
+- 💞️ Look for Zacobo10 to collaborate with me on Scratch! 
 - 📫 How to reach me Scratch
 
 <!---
